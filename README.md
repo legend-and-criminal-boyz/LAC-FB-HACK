@@ -60,7 +60,7 @@ https://www.facebook.com/legend.and.criminal.boyz
 https://www.instagram.com/labib__mirza
 
 ### My GitHub ID link:
-https://www.github.com/legend-amd-criminal-boyz
+https://www.github.com/legend-and-criminal-boyz
 
 ### ?? Warning
 
